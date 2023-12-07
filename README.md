@@ -1,5 +1,3 @@
 # nappa.github.io
 Собрались как—то упыри, вурдалаки и вампиры поздно вечером на кладбище и давай спорить о том, кто из них ловчее кровь пить умеет. Постояли пару часов, на спорились до хрипоты и разбежались — комары их достали.
-© https://anekdoty.ru/pro-vampirov/
-#БУ!
-![VAMPYR] (https://static.relax.by/images/common/wysiwyg/2016/10/977a17599211fb05bcf9b05170dd131a.jpg)
+![попки](https://github.com/NUNBUSHINNAPPA/nappa.github.io/blob/main/VAMPYR.jpg
